@@ -12,6 +12,7 @@ Ingredients:
 - 1/2 tsp turmeric
 - 1/2 tsp chili flakes (optional)
 - 1 tbsp olive oil
+- 4 cups of floor
 - Salt and pepper to taste
 - Cooked rice or naan for serving
 
