@@ -1,5 +1,5 @@
 3 cucumbers
-2 tomatoes
+3 tomatoes
 1 red pepper
 1 bell pepper
 1 carrot
