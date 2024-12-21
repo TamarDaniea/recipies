@@ -1,6 +1,6 @@
 A recipe for a good and healthy salad!🥗💚
 
-3 cucumbers
+4 cucumbers
 2 tomatoes
 1 red pepper
 1 bell pepper
